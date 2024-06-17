@@ -1,0 +1,2 @@
+# ZHCOIN-V2
+V2 N KRD
